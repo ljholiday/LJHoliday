@@ -20,5 +20,5 @@ I'm an indie founder, systems thinker, and creative technologist building tools 
 I live mobile—boats, vans, Airbnbs, whatever keeps me moving forward.  
 Always hacking, always shipping.  
 
-📫 Reach me: [ljholiday.com](https://ljholiday.com) | [motorheadmeditation.com](https://motorheadmeditation.com)
+📫 Reach me: [Party Minder(https://partyminder.com) | [ljholiday.com](https://ljholiday.com) | [motorheadmeditation.com](https://motorheadmeditation.com)
 
